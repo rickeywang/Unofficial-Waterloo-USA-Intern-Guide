@@ -43,8 +43,8 @@ To save money on various taxes for his pre-paid T-Mobile plan, Rickey used [Call
 
 ##### Avoid:
 * West of Wstern Avenue if you are south of North Ave. 
-* South of I-55 Stevenson (Lakefront during the day, Hyde Park/Jackson Park, IIT, uChicago, and Cellular Field are OK; take Jackson Park Express to Hyde Park area). Despite claims that Bronzeville is gentrifying, it is still quite sketchy.
-* CTA trains south of Roosevelt or Cermak-Chinatown, __especially__ at night. 
+* South of I-55 Stevenson (Lakefront, Hyde Park/Jackson Park, IIT Campus, uChicago Campus, and U.S. Cellular Field are OK during the day; take Jackson Park Express to Hyde Park area). Despite claims that Bronzeville is gentrifying, it is still quite sketchy.
+* CTA trains south of Roosevelt or Cermak-Chinatown, especially at night. 
 * Note that those are just guidelines, as there are no definite boundaries between a "bad" and a "good" area. Use your best judgement. 
 
 #### Housing
